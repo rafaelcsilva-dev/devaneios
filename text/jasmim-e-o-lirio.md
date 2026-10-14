@@ -12,10 +12,10 @@ Só viu a Flor morta
 
 Chorou por dias  
 E não soube quantos  
-Perdeu suas alegrias  
+Perdeu sua alegria  
 E permaneceu em prantos  
 
-Suas Lágrimas regaram o jardim  
+Suas lágrimas regaram o jardim  
 Mas o Lírio estava longe de Jasmim  
 Colheu a tristeza que cultivou  
 Mas o Lírio nunca desabrochou  
