@@ -15,7 +15,7 @@
 
 *Ao ver que ali nada havia, plantou uma semente,*
 
-*E ao vê-la brotar na terra, percebeu que era bom, pois de sua *semente emergiu vida,*
+*E ao vê-la brotar na terra, percebeu que era bom, pois de sua semente emergiu vida,*
 
 *Rompendo o vazio em cores, sons e movimentos.*
 
